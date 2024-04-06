@@ -1,6 +1,8 @@
 ### Hi there 👋
 I'm really interested in learning the different coding languages and coding cool projects.
+
 Currently working on no projects yet.
+
 I like to use the computer and explore it's features.
 
 
